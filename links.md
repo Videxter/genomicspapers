@@ -1,7 +1,7 @@
-Links encontrados sobre el post original y algunos otros articulos academicos de apoyo seleccionados en las busquedas.
+Links encontrados sobre el post original y otros articulos academicos de apoyo
 ==========================================
 
-Los primeros links son articulos que no estan incluidos en la publicacion origial.
+Los primeros links son articulos que no estan incluidos en la publicacion origial, los he puesto como apoyo a la bibliografia presentada por *jtleek*.
 
 *__"El título de la presente contribución sigue un orden
 lógico. Tendremos ocasión de ver cómo el DNA, con
